@@ -8,6 +8,8 @@
 
 > 本文章由 [The EST Group](http://estgroupe.com) 成员 [@Aufree](http://github.com/aufree) 整理而成, 转载请注明出处.
 
+书籍资源下载：[威锋网友分享](http://bbs.feng.com/read-htm-tid-7244970.html)
+
 ## 视频教程(英文)
 
 视频  |  简介
